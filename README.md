@@ -1,2 +1,4 @@
-- 👋 Hi, I’m @anawat34115
+- 👋 Hi, I’m @anawat sunhur
+- my nickname is Apex.
+- 
 -
